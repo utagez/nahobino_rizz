@@ -6,7 +6,8 @@
 </p>
 
 <p align="center" >
-  𝘂𝘁𝗮𝗴𝗲 ꩜ 𝘂𝘁𝗮 ◞ </p>[read byi](https://rentry.co/utagetherapyavoider)◞ [guestbook](https://utagez.123guestbook.com/)
+  𝘂𝘁𝗮𝗴𝗲 ꩜ 𝘂𝘁𝗮◞ feel free to come and int !! more info </p> <p align="center" >on rentry and sign my guestbook◞ 𝗻𝗮𝗵𝗼𝗯𝗶𝗻𝗼 𝗹𝗼𝘃𝗲𝗿﹟꒱
+ 
   
 <p align="center">
 <img src="https://64.media.tumblr.com/52a8d4f65b36ce3d99e4de2272949de3/2c657d87af175c12-3c/s400x600/19949a809ac6907a9964e9b5950baea479ab4460.pnj"> </p>
